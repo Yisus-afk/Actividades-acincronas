@@ -1,2 +1,2 @@
 # Actividades-acincronas
-Miercoles
+Viernes
